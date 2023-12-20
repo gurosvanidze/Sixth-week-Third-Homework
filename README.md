@@ -1,1 +1,0 @@
-# Sixth-week-Third-Homework
